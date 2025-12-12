@@ -1,4 +1,4 @@
-# chaymae-bentaleb
+# BENTALEB Chaymae
 # 💫 About Me:
 CHAYMAE BENTALEB | Future Software Engineer 👩‍💻
 
